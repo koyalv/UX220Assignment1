@@ -1,1 +1,7 @@
-Research here
+# My Research
+<p> In terms of student goals and my portfolio, I think that the goals I have set for myself are apart of the guidlines and standards, according to the article Internet and Higher Education by Gary Cheng and Juliana Chau; "To identify goals, students are expected to consider the specific
+outcomes or performance levels that they plan to fulfill". The goals I have set for myself relate to this because I have taken into consideration how much time I will have in the coming months/years to achieve these things. I have also thought about how I will make changes to my own life to accomodate for these goals. For example, being more careful with my money so I can start saving for my financial goals and using my free time to start baking to practice my recreational goal. 
+</p>
+
+<p> It was also proven through the research that the students who build portfolios or set goals for themselves are seen to be more successful and have a higher rate of achieving those goals. This is because it allows for the students to have structure and a pathway rather than a open field which most graduating students get overwhelmed with. For myself, I think this applies to my professional goals because I am able to focus on what my job search is and shrink the field so I am not overwhelemed in applying to post-grad jobs.
+</p>
